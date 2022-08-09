@@ -1,4 +1,4 @@
-# Real Estate Template for RealtyMX.com
+# Real Estate Template for XXX.com
 
 View this template at http://theamsalems.com/Real-Estate-Template/
 
